@@ -1,0 +1,1 @@
+# Introduksjonsdag-for-gruppeledere-i-informatikk
